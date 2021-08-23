@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Szymon
+- 📫 How to reach me Slack
